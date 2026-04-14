@@ -7,7 +7,6 @@
 ### 🌟 You've successfully completed the exercise! 🌟
 
 ## 🚀 Share Your Success!
-## That's the way you do Überschriften
 
 **Show off your new skills and inspire others!**
 
